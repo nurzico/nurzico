@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning 🌎➕♾️
 - 📫 How to connect me? [LinkedIn](https://www.linkedin.com/in/nurzico/)
 - 😄 Pronouns: (Noor)
-- ⚡ Fun fact: √ 🇧🇩 ➡️ `COVID` ✈️ 🇨🇦
+- ⚡ Fun fact: √ 🇧🇩 ➡️ ✈️ ➡️ 🇨🇦
